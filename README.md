@@ -7,4 +7,4 @@
 
 Reach me on Twitter:  [@ChaiWithJai](https://twitter.com/ChaiWithJai)
 
-Reach me on LinkedIn:  [Jai Bhagat](https://www.linkedin.com/in/jaybhagat/)
+Reach me on LinkedIn:  [Jai Bhagat](https://www.linkedin.com/in/chaiwithjai/)
